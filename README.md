@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Ali Bazrafshan 
+- 👀 I’m interested in film
+- 🌱 I’m currently learning programming for pc and mobile
+- 💞️ I’m looking to collaborate on iran
+- 📫 How to reach me mobile 09028609747 and mail Alibazri22@gmail.com
+- 👍 thank you
